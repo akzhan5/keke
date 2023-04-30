@@ -1,1 +1,1 @@
-# nFactorial-task-MagmaBoy-and-HydroGirl-
+# nFactorial-task-FireBoy-and-WaterGirl-
